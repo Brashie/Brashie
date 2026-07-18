@@ -6,3 +6,4 @@
 
 ![Image Alt](https://github.com/Brashie/Brashie/blob/main/Untitled56_20260719023028.png)
 ⑅ Her and Me 🥹🩷
+!!NOT A SHIP!!
